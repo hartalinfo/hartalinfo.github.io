@@ -8,4 +8,4 @@ Possibilty of a hartal on April 16th in Kerala?
 
 ### Support or Contact
 
-TBD.
+info@hartalinfo.com
